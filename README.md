@@ -1,0 +1,2 @@
+# GalihSetyaPutratug_205411003
+Portfolio
